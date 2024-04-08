@@ -1,1 +1,1 @@
-# [Kings](https://furkangunduz.github.io/Kings/)
+# [Kings](https://furkangunduz.github.io/kings/)
