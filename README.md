@@ -1,1 +1,1 @@
-# [Kings](https://furkangunduz.github.io/kings/)
+# [Play](https://furkangunduz.github.io/kings/)
